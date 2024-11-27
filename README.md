@@ -4,8 +4,8 @@ Chào mừng bạn đến với hồ sơ của **Taxi Cẩm Khê**! 🚖
 Chúng tôi cung cấp dịch vụ taxi và xe ghép uy tín tại Cẩm Khê.  
 
 🌐 **Liên kết hữu ích:**  
-- [Taxi Cẩm Khê - Dịch vụ taxi hàng đầu](https://www.taxicamkhe.com/)  
-- [Xe Ghép Cẩm Khê - Tiện lợi và tiết kiệm](https://www.xeghepcamkhe.com/)  
+- [Taxi Cẩm Khê - Gọi taxi ở cẩm Khê giá rẻ](https://www.taxicamkhe.com/)  
+- [Xe Ghép Cẩm Khê - Dịch vụ xe ghép Cẩm Khê đi Việt Trì , Cẩm Khê đi hà Nội](https://www.xeghepcamkhe.com/)  
 
 ---
 
